@@ -12,4 +12,5 @@ Life doesn't mean a thing
 Without the love you bring
 
 Love is what we've found
+
 The second time around
